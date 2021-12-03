@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gnieva94 but friends call me "OSO"(Bear) 'cause i like to eat and sleep a lot!. In future should i change my name to DevOso? or maybe to "deBearloper"? haha.
+- 👋 Hi, I’m @Gnievassj but friends call me "OSO"(Bear) 'cause i like to eat and sleep a lot!. In future should i change my name to DevOso? or maybe to "deBearloper"? haha.
 - 👀 I’m interested in manga/anime stuff. Kinda weeb perhaps. I'm new to this world of devs and computers, but im looking foward to learn everything i can.
 - 🌱 I’m currently learning html, C# and logics fundaments. 2/8/2021. I'll update this hihi.
 - 💞️ I’m looking to collaborate on dunno really. I'm rookie guy at the moment. 
